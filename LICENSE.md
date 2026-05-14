@@ -1,4 +1,4 @@
-# 
+# Procreate for macOS automatic Plugin: UI themes & typography tools is the best Procreate for macOS plugin, featuring UI themes and typography tools. Safe, efficient, and optimized
 
 
 
